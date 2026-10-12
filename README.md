@@ -9,8 +9,6 @@ Have something to share. Go live.
 
 Just people, present at the same time.
 
-[Visit Human Here](https://www.humanhere.online)
-
 ## The idea
 
 > I’m doing something in real life. Want to join me for a moment?
